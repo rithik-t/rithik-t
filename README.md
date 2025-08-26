@@ -1,4 +1,4 @@
-# Hey, I’m Rithikx 💻 
+# Hey, I’m Ritthik 💻 
 ### IT Enthusiast | Cybersecurity Explorer | Problem Solver  
 
 🔐 Passionate About Securing & Innovating in the Digital World  
